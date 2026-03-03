@@ -1,0 +1,41 @@
+# Speed – PEACE
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+How 'bout that feeling you seek,
+is it enough?
+These people killing, crying,
+crucifying,
+they're shit outta luck
+I'm calling bluff
+Shit out of luck
+Quit acting up, cool,
+just keep it shut
+You keep talk, talk, talking,
+I just don't give a fuck
+I've had enough
+Don't give a fuck
+We hurt, we cry,
+we all bleed the same
+In this savage world,
+we're but beasts to tame
+This weapon stays harnessed
+for true enemies
+Unchain the animal,
+unleash the peace in me
+Kissed by the lips of life,
+I weaponise my feelings
+You wanna play this game?
+Prepare to go down swinging
+Wiped all my tears to see
+Now it's so clear to me
+Wiped all my tears to see
+You'll always be a piece of me
+Wiped all my tears to see
+Kissed by the lips of
+life I weaponise
+Speed
+Peace in me
+Gang called Speed
+```
